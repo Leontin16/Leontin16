@@ -1,4 +1,4 @@
-<h1 align="center">🐉 Flowseal / experienced coder </h1>
+<h1 align="center">≽^•⩊•^≼ Leontin16 / smart coder (probably) </h1>
 
 ###
 
